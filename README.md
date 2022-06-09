@@ -1,0 +1,1 @@
+# Gigabyte-Z690-Aero-G
